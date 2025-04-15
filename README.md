@@ -14,8 +14,9 @@ Portfolio con proyectos reales de marketing y comunicación, incluyendo:
 
 
 
-👉 [Ver Portfolio en PDF](https://github.com/sandrapampin/marketing-comunicacion-portfolio/blob/main/Portfolio%20Marketing%20y%20comunicacion%20pdf/Portfolio%20SandraPampin%202025.pdf)
+👉 Portfolio  disponible a través de este [enlace seguro en ProtonDrive](https://drive.proton.me/urls/P2F20HZ9RW#JvqQAEVoVOh0).
 
+🔐🔍Si tienes problemas para visualizarlo, no dudes en contactarme por [LinkedIn](https://www.linkedin.com/in/sandra-pamp%C3%ADn-5ba4953a/) o por correo.
 ---
 
 📩 ¿Hablamos? 
